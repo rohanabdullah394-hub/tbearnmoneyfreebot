@@ -1,1 +1,0 @@
-Free earning bot
